@@ -27,9 +27,9 @@ Research Paper (Base paper)
 
 ## How to Reach me :
 
-### Mail : vatshayan007@gmail.com 
+### Mail : almsubhash5@gmail.com
 
-### WhatsApp: **+91 9310631437** (Helping 24*7) **[CHAT](https://wa.me/message/CHWN2AHCPMAZK1)** 
+### WhatsApp: **+91 8519967667** (Helping 24*7) **[CHAT](https://wa.me/message/CHWN2AHCPMAZK1)** 
 
 ### Website : https://www.finalproject.in/
 
